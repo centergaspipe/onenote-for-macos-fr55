@@ -1,4 +1,4 @@
-
+Get the ultimate OneNote for macOS plugin with custom Plugin for OneNote for macOS - OCR scanning and voice notes. Featuring OCR scanning and voice notes, it's the best choice for
 
 
 
